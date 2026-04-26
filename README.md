@@ -2,7 +2,7 @@
 
 **B.Tech Computer Science & Engineering**  
 Chaitanya Bharathi Institute of Technology (CBIT), Hyderabad  
-📧 pathurinichitha@gmail.com &nbsp;|&nbsp; 📞 +91 7989319694 &nbsp;|&nbsp; 🔗 [LinkedIn](https://linkedin.com) &nbsp;|&nbsp; 🐙 [GitHub](https://github.com)
+📧 pathurinichitha@gmail.com &nbsp;|&nbsp; 📞 +91 7989319694 &nbsp;|&nbsp; 🔗 [LinkedIn](https://linkedin.com) &nbsp;|&nbsp; 🐙 [GitHub](https://github.com/pathurinichitha-ctrl)
 
 ---
 
