@@ -18,7 +18,7 @@ Chaitanya Bharathi Institute of Technology (CBIT), Hyderabad
 
 ## 🏆 Scholastic Achievements
 
-- Qualified **TS EAMCET** with a rank of 1192 [2024]
+- Qualified **TS EAMCET** with a rank of 1192 [2025]
 - Scored **97.4%** in JEE main with a rank of 40k
 
 
